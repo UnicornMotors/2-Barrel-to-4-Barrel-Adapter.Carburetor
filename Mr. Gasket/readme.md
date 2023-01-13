@@ -1,0 +1,2 @@
+- https://www.holley.com/products/fuel_systems/carburetor_components/carburetor_gaskets_adapters_and_spacers/adapters_and_spacers/parts/1933
+- https://www.holley.com/products/fuel_systems/carburetor_components/carburetor_gaskets_adapters_and_spacers/adapters_and_spacers/parts/1929MRG
